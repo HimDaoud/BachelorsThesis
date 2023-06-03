@@ -1,1 +1,0 @@
- BachelorOppgaveGr10
